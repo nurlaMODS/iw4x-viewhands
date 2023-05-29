@@ -1,5 +1,5 @@
 
-Download to .rar (THIS IS THE FOLDER WITH EVERYTHING) https://mega.nz/file/WpEygIqJ#cpS6pAO1Z6KIpqzAklnRw5tywZRnlC06t4dV_Bt3ZyU
+Download to .rar (DOWNLOAD THIS NOW IT HAS EVERYTHING) https://mega.nz/file/WpEygIqJ#cpS6pAO1Z6KIpqzAklnRw5tywZRnlC06t4dV_Bt3ZyU
 
 thank you for downloading iw4x-viewhands from nurlaMODS
 
